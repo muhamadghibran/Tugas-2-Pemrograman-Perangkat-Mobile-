@@ -1,1 +1,0 @@
-# Tugas-2-Pemrograman-Perangkat-Mobile-
